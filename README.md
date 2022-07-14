@@ -1,0 +1,2 @@
+# plaguehuntergame.github.io
+özel
